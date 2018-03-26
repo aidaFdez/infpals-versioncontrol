@@ -1,1 +1,1 @@
-all animals are cool
+kittens are super cute
